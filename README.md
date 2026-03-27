@@ -1,1 +1,1 @@
-заставлял меня соообщать информацию css 00-01003--3400103-0-=02023-0
+https://github.com/ReFinek/posmotri-v-okno-ad
